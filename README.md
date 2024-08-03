@@ -2,4 +2,4 @@
 
 
 for Gate 2025 
-make sure you cleaar it 
+make sure you clear it 
